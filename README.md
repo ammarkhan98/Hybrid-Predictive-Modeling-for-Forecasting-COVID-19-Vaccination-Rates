@@ -1,2 +1,2 @@
 # Hybrid-Predictive-Modeling-for-Forecasting-COVID-19-Vaccination-Rates
-Link to paper: https://publuu.com/flip-book/771806/1711452
+Link to paper: https://heyzine.com/flip-book/7af3b38513.html
